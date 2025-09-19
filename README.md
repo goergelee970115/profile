@@ -3,7 +3,7 @@
   
   *1997년생
   *남자
-  *행정학과 졸업
+  *행정학
 ## 1.가족
 1.**사람**   [x]남 [o]녀 아내 
 ![dksdbwls](https://github.com/user-attachments/assets/ac21a165-946d-4ec7-996e-1645b3c18289)
