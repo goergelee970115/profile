@@ -9,7 +9,6 @@
 
 ## Family
   아내
- ![KakaoTalk_20250920_221734860](https://github.com/user-attachments/assets/c3ebb95a-62d9-4eaa-90fb-f90c5ef62a0e)>
   지유
   하울
 
